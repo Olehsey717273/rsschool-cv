@@ -8,7 +8,7 @@
 **Telegram**-_@olehsey_
 
 ## About me
-_I am a young and motivated student who wants to learn programming_
+_I am a young and motivated student who wants to learn programming and will be the best_
 
 My strengths:
 * Perseverance
