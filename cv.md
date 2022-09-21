@@ -1,4 +1,4 @@
-## Name **Oleg Pavlov**
+## Name: **Oleg Pavlov**
 
 ## Contacts
 **Github**-_Olehsey717273_
